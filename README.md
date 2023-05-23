@@ -1,3 +1,3 @@
 # dsci_club
 
-dsci club started 5/15/2023 :)
+dsci club joined 5/15/2023 :)
